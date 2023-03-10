@@ -1,1 +1,0 @@
-# inventoryminisumo.github.io
